@@ -1,4 +1,4 @@
-#  
+#  smart Scripts for hooked is the best hooked Script, featuring aimbot and teleport. Safe and powerful for all your needs.
 
 
 
